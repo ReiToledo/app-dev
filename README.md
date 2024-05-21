@@ -24,8 +24,8 @@ The series is comprised of seven captivating novels, each chronicling a year of 
 - *Harry Potter and the Deathly Hallows – Part 2*
 
 ## Favorite Aspects
-> "Happiness can be found even in the darkest of times if one only remembers to turn on the light."
-— Albus Dumbledore, Harry Potter and the Prisoner of Azkaban
+> **"Happiness can be found even in the darkest of times if one only remembers to turn on the light."**
+— **Albus Dumbledore**, Harry Potter and the Prisoner of Azkaban
 
 ### Themes
 - **Friendship**: The bond between Harry, Hermione, and Ron is central to the series.
