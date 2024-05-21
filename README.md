@@ -1,6 +1,3 @@
-# app-dev
-My first repository
-
 # HARRY POTTER SERIES
 
 ## Harry Potter: The Boy Who Lived
